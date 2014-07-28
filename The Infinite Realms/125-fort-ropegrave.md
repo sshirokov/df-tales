@@ -1,6 +1,6 @@
 ### Embark
 
-We are from "The Palace Of Balding"
+We are from **"The Palace Of Balding"**
 
 ![Emabark](http://pixxx.wtf.cat/image/1U0V0o2c1Y1t/Image%202014-07-28%20at%201.08.30%20AM.png)
 
@@ -19,4 +19,6 @@ We will build **"Ropegrave"**
 ![Here we are](http://pixxx.wtf.cat/image/0o0I1h3D3A0T/Image%202014-07-28%20at%201.27.13%20AM.png)
 
 ![Here's the land](http://pixxx.wtf.cat/image/0C3p003D0611/Image%202014-07-28%20at%201.36.11%20AM.png)
+
+:trollface: :construction: **STRIKE THE EARTH!** :construction: :metal:
 
