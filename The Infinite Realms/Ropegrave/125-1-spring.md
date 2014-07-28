@@ -1,22 +1,4 @@
-## Embark
-
-We are from **"The Palace Of Balding"**
-
-
-
-Our group is **"The Mountainous Tools"**
-
-![We are](http://pixxx.wtf.cat/image/03373c3O0W3m/Image%202014-07-28%20at%201.10.19%20AM.png)
-
-We will build **"Ropegrave"** here
-
-![Ropegrave](http://pixxx.wtf.cat/image/0E080d1U1A14/Image%202014-07-28%20at%201.14.18%20AM.png)
-
-![Emabark](http://pixxx.wtf.cat/image/1U0V0o2c1Y1t/Image%202014-07-28%20at%201.08.30%20AM.png)
-
-### The beginning
-
-15th Granite, 125 - Early Spring
+### 15th Granite, 125 - Early Spring
 
 ![Here we are](http://pixxx.wtf.cat/image/2L2y1V1H0213/Image%202014-07-28%20at%204.17.46%20AM.png)
 
@@ -38,7 +20,7 @@ A good moments work calls for a good moment of idling. This are has been declare
 
 ![A hole for meeting](http://f.cl.ly/items/2V2U3i0p2n0d2y0P3T0k/Image%202014-07-28%20at%204.32.24%20AM.png)
 
-### 23rd Slate, 125, Mid-Spring
+### 23rd Slate, 125 - Mid-Spring
 
 I wouldn't say we're the quickest.
 
