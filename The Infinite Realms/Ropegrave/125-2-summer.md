@@ -24,3 +24,10 @@ We begin to prepare for management, who we're told by The Leadership will help u
 Platinum.
 
 ![Plats](http://pixxx.wtf.cat/image/1k0B0o12230i/Image%202014-07-29%20at%203.34.12%20AM.png)
+
+### 19th Hematite, 125 - Early Summer
+
+As the digging of the economic stone pile continues, *Solon Eralzoz*, the Miner, apperantly in a defiant show of weakness,
+falls asleep on the job
+
+![ZZ](http://pixxx.wtf.cat/image/021n3e0j2E25/Image%202014-07-29%20at%203.40.15%20AM.png)
