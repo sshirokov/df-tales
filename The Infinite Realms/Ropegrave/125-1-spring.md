@@ -56,7 +56,7 @@ Within days, the hard "farming" begins
 
 ![Farm 2.0](http://f.cl.ly/items/422D121i3i2w0Q3h3X2I/Image%202014-07-29%20at%202.32.19%20AM.png)
 
-### 20th FElsite, 125 - Late Spring
+### 20th Felsite, 125 - Late Spring
 
 Work begins on industry. *Solon* and *Alath* dig the spaces for the heart of industry inside **Ropegrave**
 
