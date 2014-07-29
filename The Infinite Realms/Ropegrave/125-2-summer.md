@@ -18,3 +18,9 @@ With the beginnings of industry starting to function:
 We begin to prepare for management, who we're told by The Leadership will help us all drink and sleep better.
 
 ![Executive shit](http://pixxx.wtf.cat/image/0R0E2Q2m3J46/download/Image%202014-07-29%20at%203.26.55%20AM.png)
+
+### 19th Hematite, 125 - Early Summer
+
+Platinum.
+
+![Plats](http://pixxx.wtf.cat/image/1k0B0o12230i/Image%202014-07-29%20at%203.34.12%20AM.png)
