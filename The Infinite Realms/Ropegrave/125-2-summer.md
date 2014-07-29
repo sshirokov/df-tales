@@ -37,3 +37,9 @@ falls asleep on the job
 She is alone in her decision
 
 ![No ZZ](http://pixxx.wtf.cat/image/3b1p0A3B2X17/Image%202014-07-29%20at%203.42.53%20AM.png)
+
+And awakens soon enough to resume work with *Alath Libashsokan*
+
+![Work](http://pixxx.wtf.cat/image/3f2y1V332F1s/Image%202014-07-29%20at%203.45.14%20AM.png)
+
+![Alath](http://pixxx.wtf.cat/image/3m293y0m1C34/Image%202014-07-29%20at%203.46.51%20AM.png)
