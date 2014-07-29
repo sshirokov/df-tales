@@ -67,3 +67,5 @@ He is rewarded with a *Meager Office*
 ### 10th Malachite, 125 - Mid-Summer
 
 ![Exp Leader](http://pixxx.wtf.cat/image/171B2x2y3u0T/Image%202014-07-29%20at%204.02.19%20AM.png)
+
+![Work orders](http://pixxx.wtf.cat/image/1l3P2B3d1C27/Image%202014-07-29%20at%204.04.28%20AM.png)
