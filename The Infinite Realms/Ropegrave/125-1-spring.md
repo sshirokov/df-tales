@@ -25,3 +25,36 @@ A good moments work calls for a good moment of idling. This are has been declare
 I wouldn't say we're the quickest.
 
 ![Not like we have anything better to do](http://pixxx.wtf.cat/image/3t0V1y3d251l/Image%202014-07-28%20at%204.35.33%20AM.png)
+
+### 25 Slate, 125 - Mid-Spring
+
+Public works are under way to make sure that drink and food is available to those that deserve it.
+
+Our food storage and kitchen areas have been designed.
+
+![Food and Food Making](http://pixxx.wtf.cat/image/2C1T0z352q2y/Image%202014-07-29%20at%202.10.41%20AM.png)
+
+As well as a place to grow something called "crops." Someone must have heard of it. *Erib Steruseral* asures us we can drink it one day.
+
+![We're told it becomes booze](http://pixxx.wtf.cat/image/1t173J0P3O1L/Image%202014-07-29%20at%202.12.36%20AM.png)
+
+### 2nd Felsite, 125 - Late Spring
+
+As *Erib* worked on the kitchen, he shouted something about needing space for a still. Suddenly, there was some!
+
+![Just like that](http://pixxx.wtf.cat/image/1m2K1B302Y0P/Image%202014-07-29%20at%202.19.40%20AM.png)
+
+### 12th Felsite, 125 - Late Spring
+
+We have a kitchen, a still and a place to store the results.
+
+![Both of them](http://pixxx.wtf.cat/image/2I1K1j0S2E26/Image%202014-07-29%20at%202.28.27%20AM.png)
+
+Life can finally go on, and does, in the construction of the farmlands:
+
+![Faaarm](http://pixxx.wtf.cat/image/2J0c2p0M1839/Image%202014-07-29%20at%202.30.05%20AM.png)
+
+Within days, the hard "farming" begins
+
+![Farm 2.0](http://f.cl.ly/items/422D121i3i2w0Q3h3X2I/Image%202014-07-29%20at%202.32.19%20AM.png)
+
