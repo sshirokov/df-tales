@@ -1,5 +1,7 @@
 ### 15th Granite, 125 - Early Spring
 
+![Here how we are](http://pixxx.wtf.cat/image/0o0I1h3D3A0T/Image%202014-07-28%20at%201.27.13%20AM.png)
+
 ![Here's the land](http://pixxx.wtf.cat/image/0C3p003D0611/Image%202014-07-28%20at%201.36.11%20AM.png)
 
 ## :construction: **STRIKE THE EARTH!** :construction:
