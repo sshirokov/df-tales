@@ -47,3 +47,19 @@ And awakens soon enough to resume work with *Alath Libashsokan*
 Who then immediately does the exact same thing
 
 ![ZZZ 2.0](http://pixxx.wtf.cat/image/1a3y1L0g3k3o/Image%202014-07-29%20at%203.47.35%20AM.png)
+
+### 6th Malachite, 125 - Mid-Summer
+
+![Dear Leader](http://pixxx.wtf.cat/image/3z3m1f1K2I38/Image%202014-07-29%20at%203.55.13%20AM.png)
+
+*'Dear Lader' Cattenudib*, Expedition Leader has been promoted to a great number of roles.
+
+![Roles](http://f.cl.ly/items/280c010j0i3p2I330I20/Image%202014-07-29%20at%203.52.56%20AM.png)
+
+Leadership is holding him to a high standard.
+
+![Great job, in the future](http://f.cl.ly/items/3z2T1L3n0Z0S0Z1n3B3r/Image%202014-07-29%20at%203.53.13%20AM.png)
+
+He is rewarded with a *Meager Office*
+
+![Meager Office](http://pixxx.wtf.cat/image/3y0P1c002X0g/Image%202014-07-29%20at%203.52.18%20AM.png)
