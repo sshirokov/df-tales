@@ -27,7 +27,13 @@ Platinum.
 
 ### 19th Hematite, 125 - Early Summer
 
+![Salon Eralzoz](http://pixxx.wtf.cat/image/1X1c46470M3W/Image%202014-07-29%20at%203.44.01%20AM.png)
+
 As the digging of the economic stone pile continues, *Solon Eralzoz*, the Miner, apperantly in a defiant show of weakness,
 falls asleep on the job
 
 ![ZZ](http://pixxx.wtf.cat/image/021n3e0j2E25/Image%202014-07-29%20at%203.40.15%20AM.png)
+
+She is alone in her decision
+
+![No ZZ](http://pixxx.wtf.cat/image/3b1p0A3B2X17/Image%202014-07-29%20at%203.42.53%20AM.png)
