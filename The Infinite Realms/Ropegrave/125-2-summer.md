@@ -43,3 +43,7 @@ And awakens soon enough to resume work with *Alath Libashsokan*
 ![Work](http://pixxx.wtf.cat/image/3f2y1V332F1s/Image%202014-07-29%20at%203.45.14%20AM.png)
 
 ![Alath](http://pixxx.wtf.cat/image/3m293y0m1C34/Image%202014-07-29%20at%203.46.51%20AM.png)
+
+Who then immediately does the exact same thing
+
+![ZZZ 2.0](http://pixxx.wtf.cat/image/1a3y1L0g3k3o/Image%202014-07-29%20at%203.47.35%20AM.png)
