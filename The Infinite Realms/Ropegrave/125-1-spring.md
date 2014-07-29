@@ -14,7 +14,7 @@ Our stuff is in the ground, where it belongs. The sun is far to bright to trust 
 
 ![The stuff](http://pixxx.wtf.cat/image/3O2k331v0Z3o/Image%202014-07-28%20at%204.32.09%20AM.png)
 
-A good moments work calls for a good moment of idling. This are has been declared a meeting spot. As good a hole as any.
+A good moments work calls for a good moment of idling. This area has been declared a meeting spot. As good a hole as any.
 
 ![A hole for meeting](http://f.cl.ly/items/2V2U3i0p2n0d2y0P3T0k/Image%202014-07-28%20at%204.32.24%20AM.png)
 
