@@ -58,3 +58,16 @@ Within days, the hard "farming" begins
 
 ![Farm 2.0](http://f.cl.ly/items/422D121i3i2w0Q3h3X2I/Image%202014-07-29%20at%202.32.19%20AM.png)
 
+### 20th FElsite, 125 - Late Spring
+
+Work begins on industry. *Solon* and *Alath* dig the spaces for the heart of industry inside **Ropegrave**
+
+![Digging](http://pixxx.wtf.cat/image/3P0t0w2C2F3s/Image%202014-07-29%20at%202.43.45%20AM.png)
+
+![Plan](http://pixxx.wtf.cat/image/3s0f2C1g1g3g/Image%202014-07-29%20at%202.47.09%20AM.png)
+
+### 22nd Felsite, 125 - Late Spring
+
+Limonite. We will have mighty swords one day.
+
+![Future-iron](http://pixxx.wtf.cat/image/172M3w1O2C3O/Image%202014-07-29%20at%202.48.24%20AM.png)
