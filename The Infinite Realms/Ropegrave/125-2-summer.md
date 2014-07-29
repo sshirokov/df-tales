@@ -56,11 +56,11 @@ Who then immediately does the exact same thing
 
 ![Roles](http://f.cl.ly/items/280c010j0i3p2I330I20/Image%202014-07-29%20at%203.52.56%20AM.png)
 
-Leadership is holding him to a high standard.
+Leadership is holding her to a high standard.
 
 ![Great job, in the future](http://f.cl.ly/items/3z2T1L3n0Z0S0Z1n3B3r/Image%202014-07-29%20at%203.53.13%20AM.png)
 
-He is rewarded with a *Meager Office*
+She is rewarded with a *Meager Office*
 
 ![Meager Office](http://pixxx.wtf.cat/image/3y0P1c002X0g/Image%202014-07-29%20at%203.52.18%20AM.png)
 
