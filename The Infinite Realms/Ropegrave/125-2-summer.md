@@ -73,3 +73,31 @@ She is rewarded with a *Meager Office*
 ### 12th Malachite, 125 - Mid-Summer
 
 ![Status](http://pixxx.wtf.cat/image/1L2a2G1w0m0L/Image%202014-07-29%20at%204.05.32%20AM.png)
+
+Plans are laid to burn wood into charcoal, as well as a place for sleep.
+
+![Fire fire fire](http://pixxx.wtf.cat/image/0P2A2H0U1s0X/Image%202014-07-30%20at%203.08.53%20AM.png)
+
+![Sleep sleep sleep](http://pixxx.wtf.cat/image/3f301O2q3N0v/Image%202014-07-30%20at%203.10.06%20AM.png)
+
+This will have to do until production improves.
+
+### 17th Malachite, 125 - Mid-Summer
+
+As soon as the furnace was constructed, orders are in motion to make fuel.
+
+![Orders](http://pixxx.wtf.cat/image/2g1f3S1n2A2D/Image%202014-07-30%20at%203.13.43%20AM.png)
+
+A named overview of the fort so far, somewhat aspirational
+
+![Plan](http://pixxx.wtf.cat/image/0H2m3i0h2T40/Image%202014-07-30%20at%203.17.44%20AM.png)
+
+### 27th Malachite, 125 - Mid-Summer
+
+The first wave of migrants arrive. We are now 10.
+
+![Ten](http://pixxx.wtf.cat/image/1h0H0y0f0m1k/Image%202014-07-30%20at%203.21.45%20AM.png)
+
+Just in time for *Sleep Force One* to go live
+
+![Sleep Force One](http://pixxx.wtf.cat/image/3X1F3g33403t/Image%202014-07-30%20at%203.23.01%20AM.png)
