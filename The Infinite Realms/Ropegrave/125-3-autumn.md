@@ -23,7 +23,7 @@ There's also some food.
 
 ![Drink](http://pixxx.wtf.cat/image/2L0e1w302A2A/Image%202014-07-30%20at%204.10.34%20AM.png)
 
-### 13hth Limestone, 125 - Early Autumn
+### 13th Limestone, 125 - Early Autumn
 
 An outpost liason has arrived, along with a caravan.
 
