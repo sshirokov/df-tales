@@ -141,3 +141,19 @@ Complete with split storage!
 *Alath Libashsokan* makes steady progress on the trade depot. His efforts won't go unnoticed.
 
 ![Building](http://pixxx.wtf.cat/image/1M3a3L401B42/Image%202014-07-30%20at%203.48.44%20AM.png)
+
+
+### 25th Galena, 125 - Late Summer
+
+A state of emergency is fast approaching.
+
+![Drinks are leaving us](http://pixxx.wtf.cat/image/0L2o3l011t1z/Image%202014-07-30%20at%203.52.28%20AM.png)
+
+There are three drinks left for everyone. Therapy reveals why.
+
+![Woops](http://pixxx.wtf.cat/image/2h3C1O3A3R3s/Image%202014-07-30%20at%203.53.37%20AM.png)
+
+Promotions take place.
+
+*Peasant Sodel Imushemal*, *Planter Erib Steruseral*, and *Farmer Doren Rakustzaled* are informed that they are now
+entirely qualified to operate the stills.
