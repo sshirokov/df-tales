@@ -115,3 +115,23 @@ has been built around what is certain to become a renowned artifact
 
 Upwards of several Dwarves are very pleased, *'Dear Leader' Cattenudib* and *Solon Eralzoz* are the first
 in. As is clearly visible.
+
+### 14th Galena, 125 - Late Summer
+
+*'Dear Leader' Cattenudib* lays the first stone herself in the building of our siltstone trade depo.
+
+![Depot](http://pixxx.wtf.cat/image/312q23091818/Image%202014-07-30%20at%203.39.42%20AM.png)
+
+It will be built next to the very wagon that brought **The Mountain Tools** here to build **Ropegrave**
+
+### 21st Galena, 125 - Late Summer
+
+Gems are starting to clog the general stockpile.
+
+![Gems..](http://pixxx.wtf.cat/image/1l150d181B3s/Image%202014-07-30%20at%203.45.52%20AM.png)
+
+This prompts the design of the Jewler's area in the industrial floor of the fortress
+
+![Shiny rocks](http://pixxx.wtf.cat/image/1n2T2P1m3y1d/Image%202014-07-30%20at%203.46.43%20AM.png)
+
+Complete with split storage!
