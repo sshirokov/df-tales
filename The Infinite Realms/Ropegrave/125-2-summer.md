@@ -161,3 +161,7 @@ entirely qualified to operate the stills. They are also relieved of hauling duti
 A call *Doren* answers readily
 
 ![B R E W](http://pixxx.wtf.cat/image/2P2H3v1Z0w3z/Image%202014-07-30%20at%203.59.32%20AM.png)
+
+### Autumn has come
+
+![Autumn](http://pixxx.wtf.cat/image/1c1D0P221z41/Image%202014-07-30%20at%204.01.20%20AM.png)
