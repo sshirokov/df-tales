@@ -122,7 +122,7 @@ in. As is clearly visible.
 
 ![Depot](http://pixxx.wtf.cat/image/312q23091818/Image%202014-07-30%20at%203.39.42%20AM.png)
 
-It will be built next to the very wagon that brought **The Mountain Tools** here to build **Ropegrave**
+It will be built next to the very wagon that brought **The Mountainous Tools** here to build **Ropegrave**
 
 ### 21st Galena, 125 - Late Summer
 
