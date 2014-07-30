@@ -156,4 +156,4 @@ There are three drinks left for everyone. Therapy reveals why.
 Promotions take place.
 
 *Peasant Sodel Imushemal*, *Planter Erib Steruseral*, and *Farmer Doren Rakustzaled* are informed that they are now
-entirely qualified to operate the stills.
+entirely qualified to operate the stills. They are also relieved of hauling duties. Doctor's orders.
