@@ -157,3 +157,7 @@ Promotions take place.
 
 *Peasant Sodel Imushemal*, *Planter Erib Steruseral*, and *Farmer Doren Rakustzaled* are informed that they are now
 entirely qualified to operate the stills. They are also relieved of hauling duties. Doctor's orders.
+
+A call *Doren* answers readily
+
+![B R E W](http://pixxx.wtf.cat/image/2P2H3v1Z0w3z/Image%202014-07-30%20at%203.59.32%20AM.png)
