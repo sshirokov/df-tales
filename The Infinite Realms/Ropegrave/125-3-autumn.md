@@ -10,7 +10,7 @@ In response to the summer drink scare, another still is being installed.
 
 Most likely without real need. But more is always better.
 
-### 7st Limestone, 125 - Early Autumn
+### 7th Limestone, 125 - Early Autumn
 
 The jewler is finally in place. The gems are moving, and the cutting of gems is scheduled.
 
