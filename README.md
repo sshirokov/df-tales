@@ -2,4 +2,4 @@ This is a collection of documents, split by world, that describe the lives of Dw
 
 ### The Forts
 
-  * Ongoing - [Ropegrave](./The%20Infinite%20Realms/Ropegrave) -- A Dwarven fort in the year 125
+  * *[Ongoing]* - **[Ropegrave](./The%20Infinite%20Realms/Ropegrave)** -- A Dwarven fort began in the year 125.
