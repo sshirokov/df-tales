@@ -16,6 +16,8 @@ The jewler is finally in place. The gems are moving, and the cutting of gems is 
 
 ![Jelwer](http://pixxx.wtf.cat/image/3h3o180Q3h0Z/Image%202014-07-30%20at%204.09.04%20AM.png)
 
+*Peasant Sodel Imushemal* is promoted to jewler.
+
 And the Drink Emergency of Late Summer, 125 has been resolved! Drink levels are 33, for 10 dwarves.
 There's also some food.
 
