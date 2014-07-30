@@ -103,3 +103,15 @@ The first wave of migrants arrive. We are now 10.
 Just in time for *Sleep Force One* to go live
 
 ![Sleep Force One](http://pixxx.wtf.cat/image/3X1F3g33403t/Image%202014-07-30%20at%203.23.01%20AM.png)
+
+### 9th Galena, 125 - Late Summer
+
+The meeting area serving **Ropegrave** until now has finally been forgotten. The first dining room
+has been built around what is certain to become a renowned artifact
+
+![Table](http://pixxx.wtf.cat/image/2F410a2x2c1D/Image%202014-07-30%20at%203.33.48%20AM.png)
+
+![Dining room](http://pixxx.wtf.cat/image/3d2P2N0t0G2e/Image%202014-07-30%20at%203.32.04%20AM.png)
+
+Upwards of several Dwarves are very pleased, *'Dear Leader' Cattenudib* and *Solon Eralzoz* are the first
+in. As is clearly visible.
