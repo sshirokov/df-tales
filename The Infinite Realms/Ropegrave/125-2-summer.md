@@ -98,6 +98,8 @@ The first wave of migrants arrive. We are now 10.
 
 ![Ten](http://pixxx.wtf.cat/image/1h0H0y0f0m1k/Image%202014-07-30%20at%203.21.45%20AM.png)
 
+![Noobs](http://pixxx.wtf.cat/image/2N1b0w1t0U41/Image%202014-07-30%20at%203.25.51%20AM.png)
+
 Just in time for *Sleep Force One* to go live
 
 ![Sleep Force One](http://pixxx.wtf.cat/image/3X1F3g33403t/Image%202014-07-30%20at%203.23.01%20AM.png)
