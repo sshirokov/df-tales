@@ -135,3 +135,9 @@ This prompts the design of the Jewler's area in the industrial floor of the fort
 ![Shiny rocks](http://pixxx.wtf.cat/image/1n2T2P1m3y1d/Image%202014-07-30%20at%203.46.43%20AM.png)
 
 Complete with split storage!
+
+**MEANWHILE**
+
+*Alath Libashsokan* makes steady progress on the trade depot. His efforts won't go unnoticed.
+
+![Building](http://pixxx.wtf.cat/image/1M3a3L401B42/Image%202014-07-30%20at%203.48.44%20AM.png)
