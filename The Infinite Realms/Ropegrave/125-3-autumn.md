@@ -95,3 +95,7 @@ After some back and forth
 We finally agreed on some cloth for the rest of the gems
 
 ![Gems](http://f.cl.ly/items/2q3Q0U0y1W3k2U1Z232E/Image%202014-08-01%20at%202.02.58%20AM.png)
+
+Business is done.
+
+![Over](http://pixxx.wtf.cat/image/2U0747401f19/Image%202014-08-01%20at%202.05.05%20AM.png)
