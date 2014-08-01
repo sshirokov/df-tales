@@ -141,3 +141,5 @@ I keep hearing disturbing news from down below...
 ![Pups, huh...](http://pixxx.wtf.cat/image/1j0t2B25402a/Image%202014-08-01%20at%202.48.10%20AM.png)
 
 A direct reminder to fire up the furnaces.
+
+![Fire](http://pixxx.wtf.cat/image/1I2i0m1x082m/Image%202014-08-01%20at%202.50.13%20AM.png)
