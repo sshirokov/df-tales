@@ -162,3 +162,11 @@ This means preparations for a military are also underway.
 ![The required furniture](http://pixxx.wtf.cat/image/420W1N461d1v/Image%202014-08-01%20at%203.01.25%20AM.png)
 
 Soon we will strike more than just the earth.
+
+### 24th Timer, 125 - Late Autumn
+
+Expansions project in general storage and farming are underway.
+
+![General storage](http://pixxx.wtf.cat/image/3P3j0W0r0h13/Image%202014-08-01%20at%203.03.51%20AM.png)
+
+![Farming](http://pixxx.wtf.cat/image/0r331f2s3M3S/Image%202014-08-01%20at%203.04.47%20AM.png)
