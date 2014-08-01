@@ -99,3 +99,7 @@ We finally agreed on some cloth for the rest of the gems
 Business is done.
 
 ![Over](http://pixxx.wtf.cat/image/2U0747401f19/Image%202014-08-01%20at%202.05.05%20AM.png)
+
+Negotiations took two days.
+
+![The Time](http://pixxx.wtf.cat/image/3a3505451D2P/Image%202014-08-01%20at%202.06.11%20AM.png)
