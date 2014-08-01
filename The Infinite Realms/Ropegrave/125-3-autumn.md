@@ -165,7 +165,7 @@ Soon we will strike more than just the earth.
 
 ### 24th Timer, 125 - Late Autumn
 
-Expansions project in general storage and farming are underway.
+Expansions projects in general storage and farming are underway.
 
 ![General storage](http://pixxx.wtf.cat/image/3P3j0W0r0h13/Image%202014-08-01%20at%203.03.51%20AM.png)
 
