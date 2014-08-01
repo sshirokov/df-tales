@@ -156,3 +156,9 @@ I have began to separate my fuel from my metals. Metals to the east.
 In other news, I have iron.
 
 ![Metal](http://pixxx.wtf.cat/image/2x0r2p2J1g3b/Image%202014-08-01%20at%202.59.19%20AM.png)
+
+This means preparations for a military are also underway.
+
+![The required furniture](http://pixxx.wtf.cat/image/420W1N461d1v/Image%202014-08-01%20at%203.01.25%20AM.png)
+
+Soon we will strike more than just the earth.
