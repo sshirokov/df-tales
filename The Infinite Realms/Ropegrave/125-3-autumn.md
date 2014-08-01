@@ -120,6 +120,8 @@ Some migrants have arrived.
 
 ![Twelve](http://pixxx.wtf.cat/image/3J3w1U1p3i00/Image%202014-08-01%20at%202.15.17%20AM.png)
 
+![Here they are](http://pixxx.wtf.cat/image/0n1q1o0m2w3U/Image%202014-08-01%20at%202.17.58%20AM.png)
+
 At the same time, the minimal traps and finally, a door on the top stairs is installed
 
 !["Security"](http://pixxx.wtf.cat/image/1R2x3B0h383E/Image%202014-08-01%20at%202.16.02%20AM.png)
