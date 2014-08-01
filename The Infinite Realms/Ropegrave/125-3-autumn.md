@@ -55,6 +55,8 @@ are moved for trade. We were not well prepared this season. Let's hope we see an
 
 ### 17th Limestone, 125 - Early Autumn
 
+![Merchants](http://pixxx.wtf.cat/image/0o362J2K1e0m/Image%202014-08-01%20at%201.45.43%20AM.png)
+
 As the merchants unload it is decided we will enter the metals industury. Space is designated for a smelter
 and a forge.
 
