@@ -111,3 +111,15 @@ A trade agreement is established
 ![Agreement](http://f.cl.ly/items/3u3T2r0C1U3J1l0A2V2L/Image%202014-08-01%20at%202.09.30%20AM.png)
 
 ![Together](http://pixxx.wtf.cat/image/1g27190t3B0r/Image%202014-08-01%20at%202.10.43%20AM.png)
+
+### 4th Sandstone, 125 - Mid-Autumn
+
+Some migrants have arrived.
+
+![Migrants](http://pixxx.wtf.cat/image/000G24271p3r/Image%202014-08-01%20at%202.13.56%20AM.png)
+
+![Twelve](http://pixxx.wtf.cat/image/3J3w1U1p3i00/Image%202014-08-01%20at%202.15.17%20AM.png)
+
+At the same time, the minimal traps and finally, a door on the top stairs is installed
+
+!["Security"](http://pixxx.wtf.cat/image/1R2x3B0h383E/Image%202014-08-01%20at%202.16.02%20AM.png)
