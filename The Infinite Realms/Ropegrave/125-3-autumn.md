@@ -103,3 +103,11 @@ Business is done.
 Negotiations took two days.
 
 ![The Time](http://pixxx.wtf.cat/image/3a3505451D2P/Image%202014-08-01%20at%202.06.11%20AM.png)
+
+### 26th Limestone, 125 - Early Autumn
+
+A trade agreement is established
+
+![Agreement](http://f.cl.ly/items/3u3T2r0C1U3J1l0A2V2L/Image%202014-08-01%20at%202.09.30%20AM.png)
+
+![Together](http://pixxx.wtf.cat/image/1g27190t3B0r/Image%202014-08-01%20at%202.10.43%20AM.png)
