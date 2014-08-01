@@ -36,3 +36,19 @@ I think we can trust them both.
 ![Dwarves](http://pixxx.wtf.cat/image/040i2L0I1R3Z/Image%202014-07-30%20at%204.17.47%20AM.png)
 
 ![And dwarves again](http://pixxx.wtf.cat/image/2f2p010V3P2r/Image%202014-07-30%20at%204.19.56%20AM.png)
+
+In an attempt to finally build traps around the **COMPLETELY UNGUARDED HOLE IN THE GROUND** that represents our
+mountainhome entrance I was told I that mechanisms are required. In a rage, I declare the construction of some begin.
+
+Also, a floor hatch of stone.
+
+![About time](http://pixxx.wtf.cat/image/1R0D3x2w440G/Image%202014-08-01%20at%201.36.24%20AM.png)
+
+I'm surprised we've made it this far.
+
+*'Dear Leader' Cattenudib* is requested at the trade depot in anticipation of the caravan, as all of our rough gems
+are moved for trade. We were not well prepared this season. Let's hope we see another.
+
+![Trade time](http://pixxx.wtf.cat/image/2T1w3M302G05/Image%202014-08-01%20at%201.39.23%20AM.png)
+
+![Gems](http://pixxx.wtf.cat/image/281k0g09001P/Image%202014-08-01%20at%201.38.44%20AM.png)
