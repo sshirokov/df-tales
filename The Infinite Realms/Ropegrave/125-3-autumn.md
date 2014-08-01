@@ -65,3 +65,33 @@ and a forge.
 Our therapist assures us we won't have a problem.
 
 ![None at all](http://pixxx.wtf.cat/image/0z1N0r3M0p3Q/Image%202014-08-01%20at%201.44.39%20AM.png)
+
+### 24th Limestone, 125 - Early Autumn
+
+Trading begins.
+
+I attempt to buy a few picks for my rough gems, at a terrible profit for the merchant.
+
+![Crap Profit](http://pixxx.wtf.cat/image/0N3Q3f0i3t0r/Image%202014-08-01%20at%201.57.47%20AM.png)
+
+A reasonable counter is presented, as far as I can tell
+
+![Not crap](http://pixxx.wtf.cat/image/1H3r022w0o3D/Image%202014-08-01%20at%201.58.16%20AM.png)
+
+![I accept](http://pixxx.wtf.cat/image/3t2K250R100P/Image%202014-08-01%20at%201.58.27%20AM.png)
+
+I accept. Might as well have some more picks and good relations.
+
+![Everyone is happy](http://pixxx.wtf.cat/image/1t01082D2S09/Image%202014-08-01%20at%202.01.09%20AM.png)
+
+After some back and forth
+
+![Back](http://f.cl.ly/items/0W3b2b2x2W3W152C403D/Image%202014-08-01%20at%202.02.04%20AM.png)
+
+![NO O O](http://f.cl.ly/items/0y1k3O3n2E04453Z3F2H/Image%202014-08-01%20at%202.02.25%20AM.png)
+
+![Forth](http://f.cl.ly/items/2P2q3j2A0d1y3y2l1D33/Image%202014-08-01%20at%202.02.46%20AM.png)
+
+We finally agreed on some cloth for the rest of the gems
+
+![Gems](http://f.cl.ly/items/2q3Q0U0y1W3k2U1Z232E/Image%202014-08-01%20at%202.02.58%20AM.png)
