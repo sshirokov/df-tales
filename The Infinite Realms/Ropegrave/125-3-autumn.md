@@ -143,3 +143,9 @@ I keep hearing disturbing news from down below...
 A direct reminder to fire up the furnaces.
 
 ![Fire](http://pixxx.wtf.cat/image/1I2i0m1x082m/Image%202014-08-01%20at%202.50.13%20AM.png)
+
+### 6th Timer, 125 - Late Autumn
+
+Almost everyone is happy.
+
+![Joy](http://pixxx.wtf.cat/image/3X431t2c1w33/Image%202014-08-01%20at%202.53.49%20AM.png)
