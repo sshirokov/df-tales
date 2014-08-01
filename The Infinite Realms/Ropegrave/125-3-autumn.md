@@ -125,3 +125,5 @@ Some migrants have arrived.
 At the same time, the minimal traps and finally, a door on the top stairs is installed
 
 !["Security"](http://pixxx.wtf.cat/image/1R2x3B0h383E/Image%202014-08-01%20at%202.16.02%20AM.png)
+
+*Etur* is granted access to the equipment of stone. *Thikut* is givin dominion over wood.
