@@ -127,3 +127,17 @@ At the same time, the minimal traps and finally, a door on the top stairs is ins
 !["Security"](http://pixxx.wtf.cat/image/1R2x3B0h383E/Image%202014-08-01%20at%202.16.02%20AM.png)
 
 *Etur* is granted access to the equipment of stone. *Thikut* is givin dominion over wood.
+
+### 24th Sandstone, 125 - Mid-Autumn
+
+The smelter and forger are finally planned. Great is the memory of the overlord.
+
+![About time](http://pixxx.wtf.cat/image/1m431D3j2N2q/Image%202014-08-01%20at%202.46.59%20AM.png)
+
+### 25th Sandstone, 125 - Mid-Autumn
+
+I keep hearing disturbing news from down below...
+
+![Pups, huh...](http://pixxx.wtf.cat/image/1j0t2B25402a/Image%202014-08-01%20at%202.48.10%20AM.png)
+
+A direct reminder to fire up the furnaces.
