@@ -52,3 +52,14 @@ are moved for trade. We were not well prepared this season. Let's hope we see an
 ![Trade time](http://pixxx.wtf.cat/image/2T1w3M302G05/Image%202014-08-01%20at%201.39.23%20AM.png)
 
 ![Gems](http://pixxx.wtf.cat/image/281k0g09001P/Image%202014-08-01%20at%201.38.44%20AM.png)
+
+### 17th Limestone, 125 - Early Autumn
+
+As the merchants unload it is decided we will enter the metals industury. Space is designated for a smelter
+and a forge.
+
+![So fucking metal](http://pixxx.wtf.cat/image/0P1K2020310O/Image%202014-08-01%20at%201.43.39%20AM.png)
+
+Our therapist assures us we won't have a problem.
+
+![None at all](http://pixxx.wtf.cat/image/0z1N0r3M0p3Q/Image%202014-08-01%20at%201.44.39%20AM.png)
