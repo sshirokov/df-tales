@@ -84,7 +84,9 @@ Our fortune brought us **29** new members.
 
 We live in interesting times.
 
-###
+### 6th Slate, 126 - Early Spring
+
+What a difference a night can make!
 
 `Thikut Ningasen` has finished his work! A maple chest!
 
