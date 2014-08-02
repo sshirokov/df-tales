@@ -1,4 +1,4 @@
-### 1st Granite, 125 - Early Spring
+### 1st Granite, 126 - Early Spring
 
 One year. And there are still twelve of us.
 
