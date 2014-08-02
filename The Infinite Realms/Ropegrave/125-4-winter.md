@@ -90,3 +90,10 @@ The War Complex as well as the finished goods stockpile are done.
 ![Goods and War](http://pixxx.wtf.cat/image/303F2m0b0I04/Image%202014-08-02%20at%201.11.15%20AM.png)
 
 Training has already started. I'm proud of the work that the *The Oceanic Spurs* are doing.
+
+### 17th Obsidian, 125 - Late Winter
+
+A bowyer's workshop is scheduled to be made of siltstone. This will help our eventually great
+tower.
+
+![Bows](http://f.cl.ly/items/06341Y2e0G0D420h2r22/Image%202014-08-02%20at%201.30.56%20AM.png)
