@@ -14,7 +14,7 @@ Our farm operation is doubled.
 
 ![D O U B L E](http://pixxx.wtf.cat/image/2P1Y1u2W0M3Z/Image%202014-08-02%20at%2012.21.45%20AM.png)
 
-### 21st Moonstone, 125 Early Winter
+### 21st Moonstone, 125 - Early Winter
 
 As work on the secondary storage area for finished items is being constructed,
 
@@ -27,8 +27,19 @@ We begin the plans and construction of a space for the military and their equipm
 They'll be near the surface, for quick response times.
 
 
-### 22nd Moonstone, 125 Early Winter
+### 22nd Moonstone, 125 - Early Winter
 
 *Adil Zudenducim* is getting good at this.
 
 ![MASTERWORK](http://pixxx.wtf.cat/image/2u442m2B2i0j/Image%202014-08-02%20at%2012.30.26%20AM.png)
+
+
+### 25th Moonstone, 125 - Early Winter
+
+Ah. Yes. My well commissioned statues are completed.
+
+![List of statues](http://pixxx.wtf.cat/image/151s0Z1u3x1x/Image%202014-08-02%20at%2012.34.47%20AM.png)
+
+![Superior](http://pixxx.wtf.cat/image/3i1c0I39161n/Image%202014-08-02%20at%2012.35.15%20AM.png)
+
+I will find a place to display them in time.
