@@ -131,3 +131,9 @@ The Elves are finally leaving.
 And work is nearing completion on the first perimeter wall.
 
 ![Wall](http://pixxx.wtf.cat/image/341F2r0D2r2C/Image%202014-08-02%20at%203.28.48%20AM.png)
+
+It was completed on **20th Slate, 126**
+
+![Done](http://pixxx.wtf.cat/image/0F1e1W0D0Q3x/Image%202014-08-02%20at%203.32.00%20AM.png)
+
+A statue of a dwarf and `'Dear Leader' Cattenudib` stand on either side of the bridge.
