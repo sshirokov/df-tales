@@ -149,3 +149,11 @@ of consistency.
 Three farmers `Doren Rakustzaled`, `Zaz Asthunen`, and `Shem Erushistbar` jump in to farm right away
 
 ![Helping](http://pixxx.wtf.cat/image/151O322w2r0w/Image%202014-08-02%20at%203.38.03%20AM.png)
+
+### 25th Slate, 126 - Mid-Spring
+
+**OH JOY** Another useless child!
+
+![CHILDREN ARE THE FUTURE](http://pixxx.wtf.cat/image/0N1n2k2S1q18/Image%202014-08-02%20at%203.41.59%20AM.png)
+
+I congratulate the family in the traditional way. Work orders.
