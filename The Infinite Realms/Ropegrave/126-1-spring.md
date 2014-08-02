@@ -16,3 +16,10 @@ It's the deepest place in **Ropegrave**
 ![Ablel](http://f.cl.ly/items/1x421b1E3K0e3x19312f/Image%202014-08-02%20at%202.08.38%20AM.png)
 
 *Ablel Ralemath* is quick to work.
+
+### 9th Granitite, 126 - Early Spring
+
+Our most ambitious work. The great wall has been architected. This wall will be the basis of our tower,
+complete with iron drawbridge.
+
+![IRON](http://pixxx.wtf.cat/image/0a2n0T0s3g2A/Image%202014-08-02%20at%202.16.58%20AM.png)
