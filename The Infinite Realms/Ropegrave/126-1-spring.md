@@ -72,3 +72,14 @@ The migrants continue to arrive. In a single train, they enter **Ropegrave** and
 Our success and riches are legend.
 
 We are **37** at present count.
+
+### 5th Slate, 126 - Early Spring
+
+With everyone finally counted, **Ropegrave**, a once humble mountainhome now numberes **41**
+Our fortune brought us 29 new members.
+
+![Status](http://pixxx.wtf.cat/image/3D1k1c1Q2z0H/Image%202014-08-02%20at%202.50.45%20AM.png)
+
+![Noobs](http://pixxx.wtf.cat/image/1b1x160q1L3E/Image%202014-08-02%20at%202.51.46%20AM.png)
+
+We live in interesting times.
