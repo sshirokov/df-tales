@@ -3,3 +3,16 @@
 One year. And there are still twelve of us.
 
 ![Twelve](http://pixxx.wtf.cat/image/3w2s401Q2D1r/Image%202014-08-02%20at%201.54.11%20AM.png)
+
+### 7th Granite, 126 - Early Spring
+
+Further below the earth, a layer of the stone of the month has been chosen to build a residential
+complex of private rooms.
+
+![Luxury](http://pixxx.wtf.cat/image/1E3H1z0j1V13/Image%202014-08-02%20at%202.06.58%20AM.png)
+
+It's the deepest place in **Ropegrave**
+
+![Ablel](http://f.cl.ly/items/1x421b1E3K0e3x19312f/Image%202014-08-02%20at%202.08.38%20AM.png)
+
+*Ablel Ralemath* is quick to work.
