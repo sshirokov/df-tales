@@ -1,1 +1,8 @@
 baseurl: "/df-tales"
+
+defaults:
+  -
+    scope:
+      path: ""
+    values:
+      layout: "default"
