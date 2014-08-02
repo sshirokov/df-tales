@@ -145,3 +145,7 @@ but produce even more plump helmets, year round. Variety will have to come from 
 of consistency.
 
 ![Food and drink from the past](http://pixxx.wtf.cat/image/1M3G21271A2Q/Image%202014-08-02%20at%203.36.27%20AM.png)
+
+Three farmers `Doren Rakustzaled`, `Zaz Asthunen`, and `Shem Erushistbar` jump in to farm right away
+
+![Helping](http://pixxx.wtf.cat/image/151O322w2r0w/Image%202014-08-02%20at%203.38.03%20AM.png)
