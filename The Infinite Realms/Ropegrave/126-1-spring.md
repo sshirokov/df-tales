@@ -29,3 +29,5 @@ complete with iron drawbridge.
 Elves. Wonderful. Can't wait. This'll be awesome.
 
 ![Elves](http://pixxx.wtf.cat/image/2l2c1p0e3A3b/Image%202014-08-02%20at%202.25.42%20AM.png)
+
+![Aren't they majestic](http://pixxx.wtf.cat/image/3j3U3j1J0q3j/Image%202014-08-02%20at%202.27.24%20AM.png)
