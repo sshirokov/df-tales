@@ -107,3 +107,9 @@ The newly minted carpenter blinks in celebration, pleased with himself.
 A lifelong dream, finally reality
 
 ![Realized](http://pixxx.wtf.cat/image/1C432t0a3U3k/Image%202014-08-02%20at%203.00.40%20AM.png)
+
+### 9th Slate, 126 - Early Spring
+
+Trading with the elves begins. I don't anticipate this going well.
+
+![Trades](http://pixxx.wtf.cat/image/1k3n0J03400Z/Image%202014-08-02%20at%203.08.07%20AM.png)
