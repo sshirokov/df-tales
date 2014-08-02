@@ -97,3 +97,9 @@ A bowyer's workshop is scheduled to be made of siltstone. This will help our eve
 tower.
 
 ![Bows](http://f.cl.ly/items/06341Y2e0G0D420h2r22/Image%202014-08-02%20at%201.30.56%20AM.png)
+
+### 19th Obsidian, 125 - Late Winter
+
+The Peasant Problem is over.
+
+![Status](http://pixxx.wtf.cat/image/1S2v1c0K231i/Image%202014-08-02%20at%201.36.09%20AM.png)
