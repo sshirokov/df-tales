@@ -76,7 +76,7 @@ We are **37** at present count.
 ### 5th Slate, 126 - Early Spring
 
 With everyone finally counted, **Ropegrave**, a once humble mountainhome now numberes **41**
-Our fortune brought us 29 new members.
+Our fortune brought us **29** new members.
 
 ![Status](http://pixxx.wtf.cat/image/3D1k1c1Q2z0H/Image%202014-08-02%20at%202.50.45%20AM.png)
 
