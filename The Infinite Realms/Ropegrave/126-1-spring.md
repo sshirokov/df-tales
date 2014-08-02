@@ -118,3 +118,16 @@ We trade for some medical supplies and fruit. I part with rock crafts. Business 
 
 
 ### 11th Slate, 126 - Mid-Spring
+
+Today is the day we gained a butchery. Doors are still on order, so for now, avert your eyes if you
+don't like what you see.
+
+![Dead animals will go here](http://pixxx.wtf.cat/image/2H0h253U1u1B/Image%202014-08-02%20at%203.20.44%20AM.png)
+
+### 18th Slate, 126 - Mid-Spring
+
+The Elves are finally leaving.
+
+And work is nearing completion on the first perimeter wall.
+
+![Wall](http://pixxx.wtf.cat/image/341F2r0D2r2C/Image%202014-08-02%20at%203.28.48%20AM.png)
