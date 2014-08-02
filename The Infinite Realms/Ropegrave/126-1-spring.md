@@ -45,3 +45,30 @@ Space is made for a butcher shop.
 ![Party on](http://pixxx.wtf.cat/image/0j0R221J1O2H/Image%202014-08-02%20at%202.32.49%20AM.png)
 
 ![Party in question](http://pixxx.wtf.cat/image/3G0W3g3l1R1P/Image%202014-08-02%20at%202.34.01%20AM.png)
+
+### 28th Granite, 126 - Early Spring
+
+Some migrants arrive, apearntly in awe of our plan for a tower.
+
+![Here they are](http://pixxx.wtf.cat/image/3q0D0W1o0Z3O/Image%202014-08-02%20at%202.40.55%20AM.png)
+
+This was too much for `Thikut Ningasen`, who is taken by a mood.
+
+![Meet Thukut](http://pixxx.wtf.cat/image/3e032p1y1v16/Image%202014-08-02%20at%202.44.32%20AM.png)
+
+![A mood](http://pixxx.wtf.cat/image/1v2c2F0F2T3h/Image%202014-08-02%20at%202.42.59%20AM.png)
+
+And then grabs a capentry workshop.
+
+![Blinking, too](http://pixxx.wtf.cat/image/1f0U3T320h28/Image%202014-08-02%20at%202.45.32%20AM.png)
+
+At least there were no unreasonable demands...
+
+![BACK TO WORK](http://pixxx.wtf.cat/image/0i060o3D3T1Y/Image%202014-08-02%20at%202.46.17%20AM.png)
+
+### 3rd Slate, 126 - Early Spring
+
+The migrants continue to arrive. In a single train, they enter **Ropegrave** and claim it home.
+Our success and riches are legend.
+
+We are **37** at present count.
