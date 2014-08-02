@@ -31,3 +31,17 @@ Elves. Wonderful. Can't wait. This'll be awesome.
 ![Elves](http://pixxx.wtf.cat/image/2l2c1p0e3A3b/Image%202014-08-02%20at%202.25.42%20AM.png)
 
 ![Aren't they majestic](http://pixxx.wtf.cat/image/3j3U3j1J0q3j/Image%202014-08-02%20at%202.27.24%20AM.png)
+
+### 22nd Granite, 126 - Early Spring
+
+The arrival of the elves reminds me that I haven't killed enough things.
+
+Space is made for a butcher shop.
+
+![Space](http://pixxx.wtf.cat/image/0q392u0L2636/Image%202014-08-02%20at%202.31.55%20AM.png)
+
+`'Dear Leader' Cattenudib` attends a party rather than trading with the elves. I cannot blame her.
+
+![Party on](http://pixxx.wtf.cat/image/0j0R221J1O2H/Image%202014-08-02%20at%202.32.49%20AM.png)
+
+![Party in question](http://pixxx.wtf.cat/image/3G0W3g3l1R1P/Image%202014-08-02%20at%202.34.01%20AM.png)
