@@ -1,4 +1,6 @@
 baseurl: "/df-tales"
+permalink: none
+
 
 defaults:
   -
