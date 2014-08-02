@@ -60,3 +60,7 @@ He is joined by *Miner, Ablel Ralemath* another dwarf of good sensibilities.
 Since violence is so important, plans are laid to begin the work before construction is complete.
 
 ![War will follow](http://pixxx.wtf.cat/image/0A0l0s3i0Y3w/Image%202014-08-02%20at%2012.42.26%20AM.png)
+
+Armor and weapons as well
+
+![War items](http://pixxx.wtf.cat/image/0m0p0f09461b/Image%202014-08-02%20at%2012.46.06%20AM.png)
