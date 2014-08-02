@@ -43,3 +43,14 @@ Ah. Yes. My well commissioned statues are completed.
 ![Superior](http://pixxx.wtf.cat/image/3i1c0I39161n/Image%202014-08-02%20at%2012.35.15%20AM.png)
 
 I will find a place to display them in time.
+
+### 27th Moonstone, 125 - Early Winter
+
+*Miner, Alath Libashsokan* understands the dwarven priority for murder. Preferring to work on the military grounds
+rather than the simple storage of things.
+
+![Nice](http://pixxx.wtf.cat/image/3R01102f1P05/Image%202014-08-02%20at%2012.36.26%20AM.png)
+
+He is joined by *Miner, Ablel Ralemath* another dwarf of good sensibilities.
+
+![Yep, here](http://pixxx.wtf.cat/image/2v3X302R2Z2i/Image%202014-08-02%20at%2012.39.44%20AM.png)
