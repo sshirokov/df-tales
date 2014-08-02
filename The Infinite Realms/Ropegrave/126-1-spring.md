@@ -113,3 +113,5 @@ A lifelong dream, finally reality
 Trading with the elves begins. I don't anticipate this going well.
 
 ![Trades](http://pixxx.wtf.cat/image/1k3n0J03400Z/Image%202014-08-02%20at%203.08.07%20AM.png)
+
+We trade for some medical supplies and fruit. I part with rock crafts. Business is business.
