@@ -83,3 +83,21 @@ Our fortune brought us **29** new members.
 ![Noobs](http://pixxx.wtf.cat/image/1b1x160q1L3E/Image%202014-08-02%20at%202.51.46%20AM.png)
 
 We live in interesting times.
+
+###
+
+`Thikut Ningasen` has finished his work! A maple chest!
+
+![Chest](http://pixxx.wtf.cat/image/0Y1W2l2j1y1V/Image%202014-08-02%20at%202.56.44%20AM.png)
+
+It menaces with spikes of maple.
+
+![Spikes](http://pixxx.wtf.cat/image/3f1n193i1p2Y/Image%202014-08-02%20at%202.57.48%20AM.png)
+
+The newly minted carpenter blinks in celebration, pleased with himself.
+
+![Caprenter](http://pixxx.wtf.cat/image/3b1h0S0W3a2p/Image%202014-08-02%20at%202.58.24%20AM.png)
+
+![Blinks](http://pixxx.wtf.cat/image/023e3N3P2m3n/Image%202014-08-02%20at%202.59.20%20AM.png)
+
+![Pleased](http://pixxx.wtf.cat/image/3N2l2J0e0S1s/Image%202014-08-02%20at%202.59.47%20AM.png)
