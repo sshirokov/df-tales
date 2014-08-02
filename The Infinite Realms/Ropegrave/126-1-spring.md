@@ -66,14 +66,14 @@ At least there were no unreasonable demands...
 
 ![BACK TO WORK](http://pixxx.wtf.cat/image/0i060o3D3T1Y/Image%202014-08-02%20at%202.46.17%20AM.png)
 
-### 3rd Slate, 126 - Early Spring
+### 3rd Slate, 126 - Mid-Spring
 
 The migrants continue to arrive. In a single train, they enter **Ropegrave** and claim it home.
 Our success and riches are legend.
 
 We are **37** at present count.
 
-### 5th Slate, 126 - Early Spring
+### 5th Slate, 126 - Mid-Spring
 
 With everyone finally counted, **Ropegrave**, a once humble mountainhome now numberes **41**
 Our fortune brought us **29** new members.
@@ -84,7 +84,7 @@ Our fortune brought us **29** new members.
 
 We live in interesting times.
 
-### 6th Slate, 126 - Early Spring
+### 6th Slate, 126 - Mid-Spring
 
 What a difference a night can make!
 
@@ -108,10 +108,13 @@ A lifelong dream, finally reality
 
 ![Realized](http://pixxx.wtf.cat/image/1C432t0a3U3k/Image%202014-08-02%20at%203.00.40%20AM.png)
 
-### 9th Slate, 126 - Early Spring
+### 9th Slate, 126 - Mid-Spring
 
 Trading with the elves begins. I don't anticipate this going well.
 
 ![Trades](http://pixxx.wtf.cat/image/1k3n0J03400Z/Image%202014-08-02%20at%203.08.07%20AM.png)
 
 We trade for some medical supplies and fruit. I part with rock crafts. Business is business.
+
+
+### 11th Slate, 126 - Mid-Spring
