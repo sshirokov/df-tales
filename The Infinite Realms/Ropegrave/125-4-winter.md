@@ -64,3 +64,29 @@ Since violence is so important, plans are laid to begin the work before construc
 Armor and weapons as well
 
 ![War items](http://pixxx.wtf.cat/image/0m0p0f09461b/Image%202014-08-02%20at%2012.46.06%20AM.png)
+
+
+### 7th Opal, 125 - Mid-Winter
+
+It's time to form the first militia. The lucky few will get to use the shiny new armor.
+
+*The Oceanic Spurs* are hand selected, and will make us proud.
+
+![The Oceanic Spurs](http://pixxx.wtf.cat/image/2B3Y0x3O3w40/Image%202014-08-02%20at%2012.51.05%20AM.png)
+
+In theory, they should be wearing the metal armor, hot from the forges.
+
+![Metal Armor](http://pixxx.wtf.cat/image/20002g2m3x0G/Image%202014-08-02%20at%2012.53.38%20AM.png)
+
+One does not lead a militia without gaining a new name, as *'Rambo' Imushemal* now learns
+
+![Rambo](http://pixxx.wtf.cat/image/1f1b2x172r3w/Image%202014-08-02%20at%201.00.40%20AM.png)
+
+
+### 28th Opal, 125 - Mid-Winter
+
+The War Complex as well as the finished goods stockpile are done.
+
+![Goods and War](http://pixxx.wtf.cat/image/303F2m0b0I04/Image%202014-08-02%20at%201.11.15%20AM.png)
+
+Training has already started. I'm proud of the work that the *The Oceanic Spurs* are doing.
