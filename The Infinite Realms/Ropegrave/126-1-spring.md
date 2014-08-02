@@ -137,3 +137,11 @@ It was completed on **20th Slate, 126**
 ![Done](http://pixxx.wtf.cat/image/0F1e1W0D0Q3x/Image%202014-08-02%20at%203.32.00%20AM.png)
 
 A statue of a dwarf and `'Dear Leader' Cattenudib` stand on either side of the bridge.
+
+### 24th Slate, 126 - Mid-Spring
+
+Additional farm plots are being build for the additional moths. These specifically will do nothing
+but produce even more plump helmets, year round. Variety will have to come from elsewhere. This will be the source
+of consistency.
+
+![Food and drink from the past](http://pixxx.wtf.cat/image/1M3G21271A2Q/Image%202014-08-02%20at%203.36.27%20AM.png)
