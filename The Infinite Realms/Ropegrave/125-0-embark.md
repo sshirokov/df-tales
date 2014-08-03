@@ -1,4 +1,7 @@
-## Embark
+**Ropegrave** is the first fort to embark in [The Infinite Realms](../). It was established in 125 by a band of
+dwarves.
+
+### Embark
 
 We are from **"The Palace Of Balding"**
 
