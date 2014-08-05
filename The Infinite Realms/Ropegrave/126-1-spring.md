@@ -157,3 +157,11 @@ Three farmers `Doren Rakustzaled`, `Zaz Asthunen`, and `Shem Erushistbar` jump i
 ![CHILDREN ARE THE FUTURE](http://pixxx.wtf.cat/image/0N1n2k2S1q18/Image%202014-08-02%20at%203.41.59%20AM.png)
 
 I congratulate the family in the traditional way. Work orders.
+
+### 28th Slate, 126 - Mid-Spring
+
+"`Thikut` was my slave name. You will call me `Skalnik`" *Thikut Ningasen* declares.
+
+![Skalnik](http://pixxx.wtf.cat/image/2k1L1S2j1V0l/Image%202014-08-05%20at%201.13.54%20AM.png)
+
+He menaces with spikes of @skalnik
