@@ -185,3 +185,23 @@ We're still waiting, though.
 The first private bedrooms are built. First come, first sleep.
 
 ![Sleep, now](http://pixxx.wtf.cat/image/3d2t2t0A1Z3n/Image%202014-08-12%20at%202.41.38%20AM.png)
+
+### 7th Felsite, 126, Late Spring
+
+There are more new recruits for *The Oceanic Spears*
+
+![New](http://pixxx.wtf.cat/image/1g38282C2E0P/Image%202014-08-12%20at%202.46.51%20AM.png)
+
+### 13th Felsite, 126, Late Spring
+
+The extra furniture stockpile is complete.
+
+![Stock](http://pixxx.wtf.cat/image/3d1H2U2f3f3y/Image%202014-08-12%20at%202.56.40%20AM.png)
+
+### 15th Felsite, 126, Late Spring
+
+A lever room is finally designed. I'm surprised anyone is still alive.
+
+![Lever](http://pixxx.wtf.cat/image/3z1B371v2X1R/Image%202014-08-12%20at%203.00.45%20AM.png)
+
+The first lever is to be linked to the drawbridge, bit it's just a dream now.
