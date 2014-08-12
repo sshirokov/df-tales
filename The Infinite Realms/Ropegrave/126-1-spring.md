@@ -165,3 +165,9 @@ I congratulate the family in the traditional way. Work orders.
 ![Skalnik](http://pixxx.wtf.cat/image/2k1L1S2j1V0l/Image%202014-08-05%20at%201.13.54%20AM.png)
 
 He menaces with spikes of @skalnik
+
+### 1st Felsite, 126, Late Spring
+
+Additional space is designated for furniture.
+
+![Plan](http://pixxx.wtf.cat/image/3C2u2w2u0H2x/Image%202014-08-12%20at%202.28.48%20AM.png)
