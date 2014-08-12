@@ -171,3 +171,17 @@ He menaces with spikes of @skalnik
 Additional space is designated for furniture.
 
 ![Plan](http://pixxx.wtf.cat/image/3C2u2w2u0H2x/Image%202014-08-12%20at%202.28.48%20AM.png)
+
+### 4th Felsite, 126, Late Spring
+
+Promotions all around to build the first staircase of the tower.
+
+![Stairs](http://pixxx.wtf.cat/image/1b0y2t3I2J18/Image%202014-08-12%20at%202.38.59%20AM.png)
+
+We're still waiting, though.
+
+### 5th Felsite, 126, Late Spring
+
+The first private bedrooms are built. First come, first sleep.
+
+![Sleep, now](http://pixxx.wtf.cat/image/3d2t2t0A1Z3n/Image%202014-08-12%20at%202.41.38%20AM.png)
