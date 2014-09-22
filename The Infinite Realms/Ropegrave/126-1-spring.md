@@ -205,3 +205,11 @@ A lever room is finally designed. I'm surprised anyone is still alive.
 ![Lever](http://pixxx.wtf.cat/image/3z1B371v2X1R/Image%202014-08-12%20at%203.00.45%20AM.png)
 
 The first lever is to be linked to the drawbridge, bit it's just a dream now.
+
+### 19th Felsite, 126, Late Spring
+
+The lever is built, now I can link it to save the world.
+
+![Lever built](http://pixxx.wtf.cat/image/0Z3G1L3o3x1C/Image%202014-09-21%20at%207.37.54%20PM.png)
+
+![Lever link](http://pixxx.wtf.cat/image/0J2r0K1J3v37/Image%202014-09-21%20at%2011.22.52%20PM.png)
